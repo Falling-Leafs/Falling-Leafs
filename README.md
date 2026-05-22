@@ -1,15 +1,26 @@
-<img width="900" height="100" alt="tumblr_5ebc2280580196f0b0d1988cab5f0d8d_8eca5e50_400" src="https://github.com/user-attachments/assets/8610b672-ba8c-476d-9f67-026976ba754d" />
+<img width="100" height="88" alt="tumblr_2198a8c62f655373ca02c79d6fa2ccd3_cfaba598_100" src="https://github.com/user-attachments/assets/adf1dd0e-8ea9-41d1-80c7-4bf2b5eb0e62" />
+<img width="100" height="100" alt="tumblr_3585fc8fbc5d594981ca170810baeeb4_6228b703_100" src="https://github.com/user-attachments/assets/30f91519-904a-48f5-8334-d85abbe5a9a1" />
+<img width="100" height="88" alt="tumblr_85e39df817ac213d3fce920b0660909c_7e374d5d_100" src="https://github.com/user-attachments/assets/447bed19-f240-42a6-9c68-f3fab5ad31e9" />
+
+
+
+###
+
+<p align="center"><a href="https://rentry.co/ik2rymnr">rentry</p>
+
+
+<p align="center"><a href="https://github.com/snowflak3ss">my comfort</p>
+
+
 
 <br>
 
-<center>
-  
-
-
-
-<img width="390" height="200" alt="tumblr_733e2070d08ad9ec01be864d9213f61c_b1259f3a_250" src="https://github.com/user-attachments/assets/2479496d-9461-45d4-8fb7-79af5f2af760" />
 
 
 
 
- <img width="100" height="69" alt="tumblr_449db2591ab60f3d12562725ff8c2cd7_9eca0cc8_100" src="https://github.com/user-attachments/assets/f8de56dc-582f-4fca-bdf1-7d375d170be7" />   𝚠𝚒𝚙
+
+
+
+
+<img width="640" height="478" alt="image" src="https://github.com/user-attachments/assets/ac2f1d32-8479-4bb8-b822-7a664ef6bd69" />
