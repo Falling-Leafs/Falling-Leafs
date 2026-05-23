@@ -12,6 +12,19 @@
 <p align="center"><a href="https://github.com/snowflak3ss">my comfort</p>
 
 
+<br>
+
+<table border="0" cellpadding="0" cellspacing="0">
+  <tr>
+    <td bgcolor="#e7549c" style="padding: 5px 15px; font-family: monospace; font-weight: bold; color: white; letter-spacing: 2px;">
+      pretty kills
+    </td>
+    <td bgcolor="#f5e6ee" style="padding: 5px 15px; font-family: monospace; font-weight: bold; color: #0d234a;">
+      2,714
+    </td>
+  </tr>
+</table>
+
 
 <br>
 
