@@ -20,7 +20,7 @@
       pretty kills
     </td>
     <td bgcolor="#f5e6ee" style="padding: 5px 15px; font-family: monospace; font-weight: bold; color: #0d234a;">
-      2,714
+      1,340
     </td>
   </tr>
 </table>
