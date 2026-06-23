@@ -1,35 +1,12 @@
 <div align="center">
-  <img src="https://visitor-badge.laobi.icu/badge?page_id=heartiel.heartiel&left_color=cyan&right_color=dimgray&left_text=dotz "  />
+  <img src="https://visitor-badge.laobi.icu/badge?page_id=heartiel.heartiel&left_color=Purple&right_color=DarkPurple&left_text=partys "  />
 
 
 <br>
 
 <div align="center">
-<img width="400" height="369" alt="Jade-removebg-preview" src="https://github.com/user-attachments/assets/ff92ea89-8a2d-4783-8720-b18e9fe44155" />
+<img width="444" height="562" alt="ˏˋ___⁀__𝘗𝘢𝘳𝘵𝘺_𝘒𝘪𝘭𝘭𝘦𝘳𝘴_︴𝙎𝙦𝙪𝙞𝙙𝙙𝙤_+_𝙒𝙚𝙢𝙢𝙗𝙪-removebg-preview" src="https://github.com/user-attachments/assets/30da0112-c07b-48b1-90bf-c6403b0885c6" />
 
-
-
-
-
-<br>
-
-<div align="center">
-
-
-$\color{#013676}{\textsf{just be competent}}$ <br>
-
-$\color{#52ffe3}{\textsf{ᵧᵤᵣᵢ    ₜₕₑᵧ  /  ₜₕₑₘ ‿‿  💫    }}$ <br>
-
-
-
-$\color{##000036}{\textsf{ᴺᵒ  ᴰᴺᴵ   .✦ ݁˖  }}$ <br>
-
-
-<br>
-
-<div align="center">
-
-<img width="735" height="189" alt="_୨୧____brown_dividers__-removebg-preview" src="https://github.com/user-attachments/assets/bd693126-58c8-4596-8d66-da437321714b" />
 
 
 
@@ -38,10 +15,34 @@ $\color{##000036}{\textsf{ᴺᵒ  ᴰᴺᴵ   .✦ ݁˖  }}$ <br>
 
 <div align="center">
 
-$\color{#013376}{\textsf{ ᶜᵘᵗᵉˢ  🌀  }}$ <br>
+
+$\color{#a447a1}{\textsf{PaperLanes}}$ <br>
+
+$\color{#d25681}{\textsf{ᵧᵤᵣᵢ    ₜₕₑᵧ  /  ₜₕₑₘ ‿‿  💫    }}$ <br>
+
+
+
+$\color{#b56f79}{\textsf{ᴺᵒ  ᴰᴺᴵ   .✦ ݁˖  }}$ <br>
+
+
+<br>
+
+<div align="center">
+
+<img width="666" height="374" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/af342760-7f91-427e-949c-89f82333c7f7" />
+
+
+
+
+
+<br>
+
+<div align="center">
+
+$\color{#a447a1}{\textsf{ ᶜᵘᵗᵉˢ    }}$ <br>
 
 <a href="https://github.com/L1GTH4NDR41N/?page=1/">♡</a>　<a href="https://github.com/snowflak3ss/?page=1/">♡</a>　<a href="https://github.com/overworkedBull/?page=1/">♡</a>　
 
-<img width="546" height="457" alt="_pelerajaib_on_twt-removebg-preview" src="https://github.com/user-attachments/assets/d3c38c3c-c507-4960-905e-e0a8c5a12b9e" />
+<img width="548" height="455" alt="party_killers_DUO____DD-removebg-preview" src="https://github.com/user-attachments/assets/1b42bd46-73b3-40c2-8199-abd4a94a6424" />
 
 
